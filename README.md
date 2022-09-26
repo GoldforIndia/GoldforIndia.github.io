@@ -1,1 +1,1 @@
-# GoldforIndia.github.io
+# MathCosmos.github.io
